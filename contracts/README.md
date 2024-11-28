@@ -1,0 +1,2 @@
+CA : 0x3c9aDF6a85F0A33665A1bFc9601Ada67e1133F82
+Core Seed : response exist heavy primary dust easy quote crush birth monster luggage country lyrics wall paddle relief busy page garbage today fame planet base cupboard
